@@ -46,6 +46,10 @@ La hallaca siempre fue hecha y consumida por venezolanos.
 
 # La historia real
 
+La preimera mención se la hallaca viene del jesuita Gilij, quien al reseñar sus experiencias entre los indios orinoquenses escribió: El pan de maíz me trae el recuerdo de la yayaca (así la llaman los españoles); y el segundo, por demás interesante, es parte de la declaración de un funcionario de Coro hecha en 1806, con motivo de la averiguación abierta a raíz de la invasión de Francisco de Miranda, en la cual cuenta que Miranda le había dicho como añoraba volver a degustar las comidas del país, afirmándole: que su ordinario almuerzo en la casa de su padre hera (sic) ayaca (sic), olleta, mondongo y ayaquita (sic). Encontramos así que a comienzos de la segunda mitad del siglo XVIII persistía en el uso de los criollos (los españoles de Gilij) el vocablo hallaca, para designar el simple bollo o hallaquita, pero de la declaración atribuida a Miranda puede deducirse que al menos en las casas de los caraqueños acomodados, se consumía el pastel, pues lo distingue del simple bollo, al cual designa con el diminutivo. 
+
+No es arriesgado pues afirmar que a mediados del siglo XVIII ya existía en nuestro país la hallaca tal como hoy la conocemos por lo menos en la región capitalina. Cabría preguntarse ahora, cómo se pasó del bollo al pastel. 
+
 Entonces queda la pregunta, "ahora cómo coño explico la hallaca si no puedo decir que era hecha por esclavos negros con lo que le sobraba a sus dueños?"
 
 La hallaca es un reflejo de la identidad de nuestro país. Es una metáfora gastronómica de un pueblo de origen latino que se fue fusionando con ingredientes europeos. Su preparación grupal y las recetas familiares son parte de una tradición que se fue formando a través de siglos y navegó por desigualdades sociales y culturales. La historia de la hallaca es la historia del hogar venezolano y en última medida es la historia de nuestro país en un bollito.
