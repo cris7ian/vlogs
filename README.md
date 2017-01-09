@@ -36,7 +36,11 @@ Está muy de moda hablar del origen pobre de algunas comidas como la pizza, pero
 
 # Geografía
 
-Venezuela era una capitanía general y el petróleo en aquella época no servía ni para prender una lámpara, de hecho no fue hasta 1870 que el keroseno se comenzó a usar como combustible lumínico, lo que implica que no era el destino preferido de los más ostentosos para emigrar. También habían puertos, así que podemos asegurar que la rotación daba pie a una población muy variada. Esta característica oportunística de los que llegaban a Venezuela y muchos otros factores hicieron que el mestizaje no fuera un tema muy importante como sí lo fue en México o Nueva Granda (Colombia).
+Venezuela era una capitanía general y el petróleo en aquella época no servía ni para prender una lámpara, de hecho no fue hasta 1870 que el keroseno se comenzó a usar como combustible lumínico, lo que implica que no era el destino preferido de los más ostentosos para emigrar. 
+
+Pero se vivía bien. A los esclavos se les pagaba con carne, queso y papelón. Comodidades que en Europa solo podían ser costeadas por burgueses.
+
+También habían puertos, así que podemos asegurar que la rotación daba pie a una población muy variada. Esta característica oportunística de los que llegaban a Venezuela y muchos otros factores hicieron que el mestizaje no fuera un tema muy importante como sí lo fue en México o Nueva Granda (Colombia).
 
 Los elementos culturales se mueven a razón de décadas y siglos. Los hijos de los españoles, mestizos y demás venezolanos fueron construyendo una identidad que mezclaba elementos de ambas culturas.
 
