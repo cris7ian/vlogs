@@ -6,7 +6,7 @@ Este diciembre mucha gente seguro tuvo esta conversación
 
 Y *no*.
 
-Analicemos esa escena. Es la comida de navidad y de lo que sobra de la comida de los terratenientes (platos preparados) los esclavos deciden hacer un guiso con eso, meterlo dentro de un tamal y envolverlo en hojas de plátano. Acá hay 3 cosas puntuales que ignoramos.
+Analicemos esa escena. Es la comida de navidad y de lo que sobra de la comida de los terratenientes (platos preparados) los esclavos deciden hacer un guiso con eso, meterlo dentro de un tamal y envolverlo en hojas de plátano. Acá hay 4 cosas puntuales que ignoramos.
 
 - La forma en la que se preservaba la comida en el pasado.
 - La demografía en la época de la colonia.
