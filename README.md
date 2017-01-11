@@ -38,7 +38,7 @@ Está muy de moda hablar del origen pobre de algunas comidas como la pizza, pero
 
 Venezuela era una capitanía general y el petróleo en aquella época no servía ni para prender una lámpara, de hecho no fue hasta 1870 que el keroseno se comenzó a usar como combustible lumínico, lo que implica que no era el destino preferido de los más ostentosos para emigrar. 
 
-Pero se vivía bien. A los esclavos se les pagaba con carne, queso y papelón. Comodidades que en Europa solo podían ser costeadas por burgueses.
+Pero se vivía bien. A los esclavos se les pagaba con carne, queso y papelón. Comodidades que en Europa solo podían ser costeadas por burgueses. En venezuela antes de la guerra civil había un millon de venezolanos y 4 millones de cabezas de ganado.
 
 También habían puertos, así que podemos asegurar que la rotación daba pie a una población muy variada. Esta característica oportunística de los que llegaban a Venezuela y muchos otros factores hicieron que el mestizaje no fuera un tema muy importante como sí lo fue en México o Nueva Granda (Colombia).
 
